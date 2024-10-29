@@ -1,4 +1,4 @@
-Meu nome é Andressa e eu amo dormir♡
+Meu nome é Andressa e amo ficar no celular e dormir
 
 <!--
 **AndressaSantos0/AndressaSantos0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
